@@ -1,2 +1,2 @@
 # James
-Super fast
+Lively and kind hearted 
